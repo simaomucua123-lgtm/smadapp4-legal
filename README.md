@@ -1,0 +1,1 @@
+# smadapp3-legal
